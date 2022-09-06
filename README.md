@@ -1,5 +1,5 @@
 ### Eai! Eu sou o Caio Guimarães 
-
+Esse perfil ainda está em construção🏗️
 
 - 📚 Atualmente estudo na Universidade Cruzeiro Do Sul
 - 📫 Contate-me: contatocaioguimaraess@gmail.com
